@@ -1,1 +1,1 @@
-# What-is-Parallax-
+# What-is-Parallax
